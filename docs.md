@@ -2,3 +2,4 @@
  Note that this product is totally safe to use for children, adults, or pets.
 
  Turn on a toothbrush using the green button.
+ Then, puth the toothbrush away for good! 
